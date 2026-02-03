@@ -1,1 +1,1 @@
-i basicaly copyed this code 2 use it as a website for my own stuff i do not check these if what u ade is rly important than emil me and ill either include it or add a link to your version um email here : [adenrobinson57@gmail.com]
+I basically copied this code 2 use it as a website for my own stuff. I do not check these if what u added is really important or usefull than email me and I'll either include it or add a link to your version. Email here : [adenrobinson57@gmail.com]
